@@ -75,6 +75,8 @@ CAPITULO 23
 
 CAPITULO 24
 
+![image](https://user-images.githubusercontent.com/85178869/132530146-619672f9-1d8d-4143-8c53-9e137da99746.png)
+
 
 # 4.	VIDEO
 
